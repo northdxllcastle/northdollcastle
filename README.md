@@ -1,1 +1,0 @@
-![](https://64.media.tumblr.com/4d9e14cb471c4ee9946197167738e0c9/b08ff72694d6ce59-b7/s250x400/f58aba3e988ed9271ea399d7f27feef55684c5f8.gifv)
